@@ -1,4 +1,4 @@
-板橋Cityマラソン2024ライブ放送・テレビ放送・放送・伊藤美誠vs王曼昱ライブ配信・生中継・生放送 2024年03月17日
+板橋Cityマラソン2024ライブ放送・テレビ放送・放送・ライブ配信・生中継・生放送 2024年03月17日
 
 <strong>🔴生中継▶ [https://sports2tv.live/jp-marathon/](https://sports2tv.live/jp-marathon2/)</strong>
 
